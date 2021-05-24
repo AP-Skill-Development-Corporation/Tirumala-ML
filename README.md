@@ -1,3 +1,3 @@
 # Tirumala-ML
 
-# You canfind all the jupyter notebooks here.
+# You can find all the jupyter notebooks here.
