@@ -10,4 +10,4 @@
 #### 02-06-2021 recoreded session [LInk](https://transcripts.gotomeeting.com/#/s/478a33ee79f3b923a72ac31d5745b675d543f84aafd943933102abaa37b950f3)
 #### 03-06-2021 recorded session [LINK](https://transcripts.gotomeeting.com/#/s/ba9693247595b196021cf80612fd16305cdfb79557f15d0632182829ea2f4d4e)
 #### 04-06-2021 recored session [LINK](https://transcripts.gotomeeting.com/#/s/13ce1caa04e019e0730f32244585368aeb8c0889f532a3b4ccb57748ff0dbf94)
-#### 05-06-2021 recored session [LINK] (https://transcripts.gotomeeting.com/#/s/ca8b31eab8059f911cff3a5a2afa6f8ca04e7530e44059c0cf983b91de656d4a)
+#### 05-06-2021 recored session [LINK](https://transcripts.gotomeeting.com/#/s/ca8b31eab8059f911cff3a5a2afa6f8ca04e7530e44059c0cf983b91de656d4a)
